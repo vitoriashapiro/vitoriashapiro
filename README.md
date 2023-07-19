@@ -1,4 +1,4 @@
-[![ Digitando SVG ](https://readme-typing-svg.herokuapp.com/?color=ff91a4&size=35¢er=true&vCenter=true&width=1000&lines=OLÁ,+Meu+nome+é+Vitoria+Santana+Tenho+22+anos;+Estudo+Analise+e+Desenvolvimento+De+Sistemas:%29)](https://git.io/typing-svg)
+[![ Digitando SVG ](https://readme-typing-svg.herokuapp.com/?color=ff91a4&size=35¢er=true&vCenter=true&width=1000&lines=OLÁ,+Meu+nome+é+Vitoria+Santana+Tenho+23+anos;+Estudo+Analise+e+Desenvolvimento+De+Sistemas:%29)](https://git.io/typing-svg)
 
 ![octocat-1675090362398](https://user-images.githubusercontent.com/114372178/215514836-867c725f-469a-447e-bead-858bbd66bca6.png)
 
